@@ -8,13 +8,13 @@
 
 例如所谓“考试作弊”等说法，与实际时间线明显不符（毛概考试 10:00 开始，相关截图时间为 9:39），这一点我已经保留完整证据。
 
-<img width="760" alt="证据截图" src="https://github.com/user-attachments/assets/8b483500-b4c9-4a99-b6e3-8a32ca8eb0b0" />
+同时我联系了导员，也发了校长信箱，也亲自去 A 座调了监控，没有任何实际证据的情况下，你的可靠消息消息来源是什么？
 
-我联系了导员，也发了校长信箱，同时自己去 A 座调了监控，没有任何实际证据的情况下，你的可靠消息消息来源是什么？
+<img width="760" alt="恶意造谣证据截图" src="https://github.com/user-attachments/assets/8b483500-b4c9-4a99-b6e3-8a32ca8eb0b0" />
 
-<img width="520" alt="联系导员记录" src="https://github.com/user-attachments/assets/5ae109a7-bf6e-4572-9c88-5c9626e6fa26" /> 
+<img width="520" alt="A座记录" src="https://github.com/user-attachments/assets/5ae109a7-bf6e-4572-9c88-5c9626e6fa26" /> 
 
-<img width="760" alt="校长信箱或监控相关记录" src="https://github.com/user-attachments/assets/514f18c0-7c47-4086-a2e0-b1ed16695c26" />
+<img width="760" alt="校长信箱" src="https://github.com/user-attachments/assets/514f18c0-7c47-4086-a2e0-b1ed16695c26" />
 
 我承认自己过去确实存在一些不成熟、急于表现、表达失当的问题，这也是我之前公开道歉和反思的原因。这部分批评，我接受，也会继续改正。
 
